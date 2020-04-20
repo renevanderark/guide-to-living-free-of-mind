@@ -96,3 +96,11 @@ Whether your self-talk is violent causing you depression, or praising, causing y
 You cannot just say "stop" to your self-talk. Saying "stop" is talking to yourself.
 
 Thoughts come up like a heart-beat. They do not _mean_ anything, there is no trust-worthy reality in thoughts and visions. 
+
+## Emotions
+
+Before I start going on about emotions, I would like to mention that I realize that the beliefs I shared above are of course merely a perception of reality as well. But when you believe in beliefs and the beliefs are helpful then they can be substitute truths for you on the path of clearing your mind... How else, but throught words, can we learn from each other?
+
+Anyway, emotions are quite a mystery and everything I say about emotions here are beliefs I formed through reading. Science about emotions supports some of these statements, but how did the science measure the emotions? There must have been a subjective component apart from dry observation in order to say anything scientific about emotions. 
+
+Therefore, I, again, take the freedom to use a style of writing which is _truthy_.
