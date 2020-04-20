@@ -44,7 +44,7 @@ If you have caused pain to another unintentionally, forgive yourself. If you hav
 
 In both cases, try and see whether you can help the other heal. Even though you gave it to them, it is their pain now to deal with. It is not up to you anymore... be listening, be helpful. If you're chased away however, be respectful and let them please deal with their own pain in their own time. And forgive yourself.
 
-Do NOT hurt yourself! Neither giving yourself judgements, nor physically. You are holy, you are worthy of love and joy, you are an expression of love and joy.
+Do NOT hurt yourself! Neither by judging yourself, nor physically. You are holy, you are worthy of love and joy, you are an expression of love and joy.
 
 
 ### I believe in forgiveness
