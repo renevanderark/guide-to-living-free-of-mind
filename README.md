@@ -50,3 +50,9 @@ Do NOT hurt yourself! Neither by judging yourself, nor physically. You are holy,
 ### I believe in forgiveness
 
 If you do not, you live in a painful fiction we tend to call the past for the rest of your life.
+
+### I believe in being grateful
+
+Being grateful directs your attention away from things that make you angry or unhappy... al sorts of negative. If you have even the tiniest inkling of imagination - which we all have in abundance - you can find something to be grateful for _right now_: I just took off my shoes which were tight around my feet!
+
+I mentioned joy always being there for you to access in abundance. Just thinking of the first thing you are grateful for is the key to this infinite well.
