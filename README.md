@@ -6,7 +6,7 @@ To ensure that your mind is free, make sure you take mind at face value.
 
 ## Beliefs
 
-Beliefs and convictions, or simply put, views form a net of ensnarement for the mind. Once upon a time in India a man understood this fact; you can read all about that [here](https://accesstoinsight.org/tipitaka/dn/dn.01.0.bodh.html).
+Beliefs and convictions or, simply put, views, form a net of ensnarement for the mind. Once upon a time in India a man understood this fact; you can read all about that [here](https://accesstoinsight.org/tipitaka/dn/dn.01.0.bodh.html).
 
 There is, however, a way to perceive the world more directly. Clear vision implies, first and foremost, understanding your perceptions as hampered by a cloud of distortions: the eyes see a tiny spectrum of color, the ears hear tiny range of frequencies. And the words we use to convey all this further distort reality, as well as your mind, wich oftentimes uses these very same words to reduce reality to a set of abstract labels.
 
