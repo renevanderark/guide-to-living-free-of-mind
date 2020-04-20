@@ -4,6 +4,8 @@ In order to live free, ensure that your mind is free.
 
 To ensure that your mind is free, make sure you take mind at face value.
 
+If you find yourself convulsing about the next section, please skip down to the [depression](#Depression) section.
+
 ## Beliefs
 
 Beliefs and convictions or, simply put, views, form a net of ensnarement for the mind. Once upon a time in India a man understood this fact; you can read all about that [here](https://accesstoinsight.org/tipitaka/dn/dn.01.0.bodh.html).
@@ -56,3 +58,11 @@ If you do not, you live in a painful fiction we tend to call the past for the re
 Being grateful directs your attention away from things that make you angry or unhappy... al sorts of negative. If you have even the tiniest inkling of imagination - which we all have in abundance - you can find something to be grateful for _right now_: I just took off my shoes which were tight around my feet!
 
 I mentioned joy always being there for you to access in abundance. Just thinking of the first thing you are grateful for is the key to this infinite well.
+
+## Depression
+
+All these beliefs sound nice and all. But when you're thouroughly depressed they're quite offensive, even depressing to read. 
+
+But depression is the result of self-inflicted violence.
+
+Most depressed people do not see themselves as violent, I noticed... But you _are_. If you ever tell yourself negative things you would never say to anyone you love, then you are _being_ quite violent towards yourself in a way that is completely unfair. 
