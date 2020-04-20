@@ -63,6 +63,20 @@ I mentioned joy always being there for you to access in abundance. Just thinking
 
 Touching water feels great and water rocks, cause it always seeks the lowest point and erodes away the edges.
 
+### I don't believe I am important
+
+Ever wonder why people who act self-important cause you so much annoyance?
+
+If they make themselves more important, does it not take away from how important _you_ are?
+
+It's as if there is a limited amount of importance to be had in the world and it is quite dubious what you'd want to do with yourself once you are considered important.
+
+There was a time quite a number of people thought I was quite important. Then time passed and they forgot how important I was to them. Whenever I forget that I live in a delusional mind-reality I forget that I'm not important at all... It is one of those relative, opinion-based things that have no real use, except to exert control on your environment with. But exerting control on your environment is a horrible act of violence, denying the fact that minds are free.
+
+Oh well... whenever you catch yourself feeling important, please imagine a cold waterfall on you wearing it all away again.
+
+Oh, and whenever you catch youself feeling unimportant, please be grateful.
+
 ## Depression
 
 All these beliefs sound nice and all. But when you're thouroughly depressed they're quite offensive, even depressing to read. 
