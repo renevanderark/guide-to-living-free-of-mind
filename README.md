@@ -8,9 +8,9 @@ To ensure that your mind is free, make sure you take mind at face value.
 
 Beliefs and convictions, or simply put, views form a net of ensnarement for the mind. Once upon a time in India a man understood this fact; you can read all about that [here](https://accesstoinsight.org/tipitaka/dn/dn.01.0.bodh.html).
 
-There is, however, a way to perceive the world more directly. Clear vision implies, first and foremost, understanding your perceptions as hampered by a cloud of distortions: the eyes see a tiny spectrum of color, the ears hear tiny range of frequencies. And the words we use to convey all this, further distort reality, as well as your mind, wich oftentimes uses these very same words to reduce reality to a set of abstract labels.
+There is, however, a way to perceive the world more directly. Clear vision implies, first and foremost, understanding your perceptions as hampered by a cloud of distortions: the eyes see a tiny spectrum of color, the ears hear tiny range of frequencies. And the words we use to convey all this further distort reality, as well as your mind, wich oftentimes uses these very same words to reduce reality to a set of abstract labels.
 
-All this being set. I have a set of very binary beliefs, which might change over time, but help me survive in a world full of people, their views and their opinions.
+All this being said, I have a set of very binary beliefs, which might change over time, but help me survive in a world full of people, their views and their opinions.
 
 ### I do not believe in hope
 
