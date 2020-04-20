@@ -59,10 +59,26 @@ Being grateful directs your attention away from things that make you angry or un
 
 I mentioned joy always being there for you to access in abundance. Just thinking of the first thing you are grateful for is the key to this infinite well.
 
+### I believe in water
+
+Touching water feels great and water rocks, cause it always seeks the lowest point and erodes away the edges.
+
 ## Depression
 
 All these beliefs sound nice and all. But when you're thouroughly depressed they're quite offensive, even depressing to read. 
 
 But depression is the result of self-inflicted violence.
 
-Most depressed people do not see themselves as violent, I noticed... But you _are_. If you ever tell yourself negative things you would never say to anyone you love, then you are _being_ quite violent towards yourself in a way that is completely unfair. 
+Most depressed people do not see themselves as violent, I noticed... But you _are_. If you ever tell yourself negative things you would never say to anyone you love, then you are _being_ quite violent towards yourself in a way that is completely unfair.
+
+This world is full of violence. It is visible when directed outwardly, but the most prevalently widespread form of violence is the violence which is directed inwardly... If you feel invisible, misunderstood, reflect upon the fact that the violence you are inflicting on yourself is invisible to others. 
+
+They can not simply feel with you all that you suffer, you are hiding it from others.
+
+## Self talk
+
+Whether your self-talk is violent causing you depression, or praising, causing you to have a bloated ego. It is wrong. Labeling reality with self-talk is delusional. 
+
+You cannot just say "stop" to your self-talk. Saying "stop" is talking to yourself.
+
+Thoughts come up like a heart-beat. They do not _mean_ anything, there is no trust-worthy reality in thoughts and visions. 
