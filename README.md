@@ -34,7 +34,7 @@ Whenever it is hard for you to feel the unconditional love you'd like to spread,
 
 ### I believe in the incurable existence of pain
 
-Pain is one of the easiest sensations to experience directly: life causes you pain as long as your mind is not free of hopes and desires. And let's face it, extremely few people can say that their mind is truly free of those. There is only a limited set of things you _can_ do with your pain: try something to make it go away, accept it, or suffer from it. Have you ever tried _not minding_ the pain you feel? Some pain, especially deep emotional trauma, runs so deep, there is nothing you can do about it. Facing pain is undergoing it and trying not to mind it. A lot of people find this offensive and insensitive, but what else is there that you _can_ do? Keep running away from it of suffering from it for the rest of your life?
+Pain is one of the easiest sensations to experience directly: life causes you pain as long as your mind is not free of hopes and desires. And let's face it, extremely few people can say that their mind is truly free of those. There is only a limited set of things you _can_ do with your pain: try something to make it go away, accept it, or suffer from it. Have you ever tried _not minding_ the pain you feel? Some pain, especially deep emotional trauma, runs so deep, there is nothing you can do about it. Facing pain is undergoing it and trying not to mind it. A lot of people find this offensive and insensitive, but what else is there that you _can_ do? Keep running away from it or suffering from it for the rest of your life?
 
 ### I do NOT believe in inflicting pain
 
