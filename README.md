@@ -103,4 +103,32 @@ Before I start going on about emotions, I would like to mention that I realize t
 
 Anyway, emotions are quite a mystery and everything I say about emotions here are beliefs I formed through reading. Science about emotions supports some of these statements, but how did the science measure the emotions? There must have been a subjective component apart from dry observation in order to say anything scientific about emotions. 
 
-Therefore, I, again, take the freedom to use a style of writing which is _truthy_.
+Therefore, I, again, take the freedom to use a style of writing which is _truthy_. 
+
+When you take a little leap of faith you can thus see emotions, especially ones which are repressed, find their way into your body. Muscle aches, cramps, slumbering cysts which are a dangerous infection waiting to happen.
+
+Once you start sitting still and observing your mind you might just run into these physical symptoms popping up at suprising places in the body. If you are a serious case, like me, this can even get scary. In my case, the throbbing mass of surpressed anger especially settled in the muscular structure in an around my skull. Anyone can imagine locked jaws from years of clenching teeth making sense, but the years it is taking to resolve/dissolve can be discouraging. It's not (at all) like a few hours of meditation per day is cure for anger either. Every time anger comes back and is repressed, tensions in the body are _re_strained.
+
+The difference is that it is conscious now. Meditation cultivates conciousness. Mindfulness is trying to constantly re_mind_ yourself to be aware of what is happening in your body: what the body feels, what emotions you feel, what thoughts come up.
+
+Buddhism in the traditional sense dissects all these aspects of what happens inside you, in order to cultivate this awareness and refine it. Wise discernment.
+
+If you live with a (predominantly Western) mindset of achievement where you work hard to achieve something, it can be extremely discouraging to take up meditation and practice. You expect to get the results when you work hard. You read things like 'the attainment of the 1st Jhanna' as if it is something you earn. But anything hard is counterproductive, or non-productive at best.
+
+It becomes even more discouraging when you read things like: "only when in Jhanna can you start to carefully apply wise discernment to learn to recognise how things have come to be". 
+
+The result-driven, achievement-oriented way of life misses the point entirely.
+
+But I digress. In dependence on contact, feelings arise. Cultivating awareness, applying wise discernment, does not and _cannot_ cure you from emotions. You have had contact, emotions have arisen, emotions are unresolved and stored deep inside your body. If I had the misunderstanding that I could be cured from emotions, I conjecture some of you readers might have the same misunderstanding. The chain of dependent arising [todo: reference here] is not broken here; contact cannot be avoided. You can learn to allow your emotions to _be_ without acting them out, without suppressing them. Sometimes naming them, while venting a little of the emotional charge is even necessary. 
+
+When I say I believe in pain I mean pain (the root-emotion covering the spectrum including anger, fear, sadnesss and the like) is the primary transformer in freeing your mind from pain. Craving and clinging. This is where the chain is broken. And when you do not crave to be away from your pain, nor cling to the idea that you can be free of this pain it is exactly _then_ when 'transformation' happens. Can you be okay with this horrible feeling of - let's say - being left out? "I don't mind feeling bad"
+
+My skull, apparently, also had cramped muscles behind the eyes, at the top of the palate, directly under the brain... Maybe the energy I sense when all these muscles tense is more real than anatomy allows? I don't know, but I'm open to the idea that there _is_ actually a tumultuous burning hot water current forcing itself _though_ my brain from the back of my spine to my forehead. I'm starting to open up to the idea that there _is_ in fact a spiritual cork just on the middle of my forehead being pressed against by this current continually. 
+
+It may not happen to every frequent meditator, but you can imagine it is all to do with emotions. Words like "blocked energy" and "pain body" spring to mind... But to me it all boils down to a simple sequence:
+- you come in contact with something that hurts you (either real in the now, or from an old memory)
+- you cannot endure the pain this something causes you
+- you try to get away from the pain by either acting out, or (in my case) clenching your teeth
+- the pain is stored up ready for you to be confronted with all over again day,s, weeks, months or years later.
+
+I'm still in the leap-of-faith stage, but trying not to be hopeful these physical symptoms will ever end (I don't believe in hope). I'm fine, actually.
